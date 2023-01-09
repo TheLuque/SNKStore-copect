@@ -1,0 +1,2 @@
+# SNKStore-copect
+ 
